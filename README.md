@@ -1,3 +1,3 @@
-My self Nazneen Sultana
-I am reasearch scholar from Concordia University
-I like to watch movies, and documentries.
+My name is Nazneen Sultana
+I am a graduate student at Concordia University Wisocnsin
+I like to watch documentaries and go for a run
